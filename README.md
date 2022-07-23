@@ -1,0 +1,1 @@
+# GlobalAI_projects
